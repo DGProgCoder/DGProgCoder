@@ -19,5 +19,19 @@ Cantor, compositor e entusiasta da tecnologia. Aqui você encontra meus "álbuns
  📡 Onde me encontrar
 - [https://www.instagram.com/danillogomescantor)
 
-![nwmsrocks-norhtwest-motorsport](https://github.com/user-attachments/assets/0b71fe79-da4c-4a50-ace6-e1097f66a7af)
 
+Volte Sempre!
+
+![pepe-happy](https://github.com/user-attachments/assets/04c266f9-2b0f-489c-ae81-3f22cca05f18)
+
+
+
+
+
+
+
+
+
+
+
+ 
