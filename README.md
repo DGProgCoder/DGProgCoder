@@ -22,7 +22,7 @@ Cantor, compositor e entusiasta da tecnologia. Aqui você encontra meus "álbuns
 
 Volte Sempre cumpanhero!
 
-![pepe-happy](https://github.com/user-attachments/assets/04c266f9-2b0f-489c-ae81-3f22cca05f18)
+![tipping-the-hat-tyler-owens](https://github.com/user-attachments/assets/f43d1f53-4a84-44cd-88be-3019fd77ac9d)
 
 
 
